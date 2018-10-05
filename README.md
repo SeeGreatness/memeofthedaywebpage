@@ -1,2 +1,2 @@
 # memeofthedaywebpage
-because i forgot to pay for premium service for my website!
+because I forgot to pay for premium service for my website!
